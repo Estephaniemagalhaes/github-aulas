@@ -1,3 +1,3 @@
 Um texto aleatório para uma vídeo de exemplo
 
-Chocante escrever por aqui
+Chocante a doidera por aqui
